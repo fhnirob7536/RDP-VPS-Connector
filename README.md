@@ -4,7 +4,7 @@
 
 - This tools Only for RDP Crackers 🔥
 
-- buy for DM https://t.me/RdpVpsSellar
+- buy for DM https://t.me/Rdp_VpsSellar
 
 - Teligram (DEMO VIDEO) https://t.me/FreeRDPvpsBIN/1362
 
